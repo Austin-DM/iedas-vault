@@ -1,0 +1,11 @@
+The Scourge of Winter is the name given to the unnatural freezing phenomenon overtaking the southeastern reaches of [[Iedas]], originating from the island of [[Renan]]. It is not a seasonal shift or a regional storm system. It is a slow, deliberate engulfing—a hostile expansion of cold that resists magical reversal, divine cleansing, and even conventional explanation.
+
+It began subtly, nearly fifteen years ago, with early signs dismissed as seasonal irregularities: harsher storms, unexpected snowfall, and ice forming where it should not. But over time, the symptoms deepened. Entire forests froze solid. Rivers reversed flow, dammed by sudden glacial intrusions. Animals migrated away or perished. Within three years, the southern half of Renan had been lost to the cold entirely.
+
+No one knows what caused it. Among the educated, theories range from leyline collapse to long-dormant sorceries reawakening beneath the sea. In truth, only a few of Iedas’s most well-connected arcane authorities suspect its true origin: an elemental being of immense power, awakened beneath the ice and slowly expanding its influence. This entity, though unnamed and unseen by most, is thought to be the source of the phenomenon.
+
+The frost is not natural in behavior or effect. The temperature drop follows no seasonal pattern, and the rate of expansion appears to quicken in fits and starts—often linked to unknown triggers. Attempts to divine its origin point or disrupt its spread have all failed. Even high-level magical interventions, including firestorms, radiant expulsions, and divine seals, have melted only surface layers before refreezing with doubled intensity.
+
+Most who live in the southern archipelago avoid speaking of the Scourge at all. To them, it is a creeping end. Stories abound of figures vanishing into the fog, entire settlements reduced to glacial tombs, and whispers heard in the ice during the deepest nights.
+
+In recent months, the phenomenon has begun to accelerate again. This resurgence has prompted increasing concern among groups like [[Skyfleet]], who fear it may one day reach the mainland. Expeditions to Renan and beyond are being quietly organized, seeking either to understand the entity behind the frost—or prepare Iedas for what may come next.

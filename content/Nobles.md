@@ -1,0 +1,21 @@
+
+
+The nobles of [[Iedas]] are not monarchs in the traditional sense. They do not rule through bloodright or inherited [[crowns]] of a royal house. Instead, they are individuals who have undergone the [[Ritual of Ascendancy]], a sacred and transformative ceremony by which they earn the blessing of [[Mordeus]], the elemental force tied to the continent’s heart. This ritual serves as both a political and metaphysical elevation—granting each noble a unique, often dramatic ability that reflects their personality, heritage, or spiritual alignment.
+
+Nobles are the recognized stewards of land and society across [[Iedas]]. Each noble governs a domain—be it a city, a rural stretch of farmland, a fortified mountain pass, or an entire region of unsettled territory. While there is no central government, there is an unspoken network of mutual respect, rivalry, and diplomacy among the noble class. The absence of kings or queens means that governance is varied and dependent on each noble’s character and power.
+
+What unites the nobility is the [[crowns]]—a unique object forged for them once in their lifetime using magma from the volcano of Mordeus. This crown is not necessarily worn daily but represents the culmination of their identity, power, and divine right to lead. The composition of the crown—its iron-to-gold ratio, number of spires, cut and placement of gems—reflects aspects of the noble’s authority. More iron implies worldly leadership and command; more gold signifies spiritual or magical potency.
+
+Nobles are diverse in background. Some were once commoners or adventurers who earned the right to ascend. Others descend from long lines of crowned individuals but must still undergo the Ritual themselves to be considered legitimate. The ceremony is rarely denied, but the strength of the blessing received varies. Nobles with greater political or social influence often receive more potent or dramatic blessings, a subtle form of meritocracy tied to reputation and support.
+
+The powers bestowed by the Ritual vary. A noble might gain the ability to turn fields fertile with a gesture, command beasts with their voice, or suppress all lies within their territory. These abilities are not always combative but are often deeply impactful within the sphere of governance, faith, or social control.
+
+The [[Children of Mordeus]], semi-mythical figures said to be non-human agents of the volcano’s will, occasionally intervene to approve or oversee crowning ceremonies or political shifts. These beings maintain the mystique and spiritual legitimacy of the noble system without directly ruling themselves.
+
+Nobles rarely unite under a single banner. [[Alliances]] are formed situationally—through marriage, shared threat, or trade. Conflict between nobles is common but often subtle, waged through trade disputes, maneuvering over [[crowns]] legitimacy, or contests of influence rather than open war. However, should a greater threat arise—such as an elemental catastrophe, a magical incursion, or foreign invasion—nobles are expected to act as the continent’s defenders, using their diverse powers in service of [[Iedas]].
+
+Nobles are also culturally and geographically distinct. A noble of the frigid north may view duty and endurance as virtues, while a noble from a fertile river basin may prioritize cultivation, celebration, and community. These regional differences produce wildly different political systems, religious structures, and values, even among nobles who underwent the same Ritual.
+
+Despite their differences, all nobles in Iedas are recognized by one another through their crown and blessing. It is not a title that can be faked—the crown is magical, self-validating, and interpretable by trained magmatic mages. To claim nobility without a true crown is to risk being denounced, cast out, or destroyed.
+
+Each noble leaves a lasting mark not just on their region but on the land itself. Through their influence, their blessing, and their connection to the great field of magic, nobles shape the spiritual and literal terrain of Iedas, often in ways they do not fully understand.
